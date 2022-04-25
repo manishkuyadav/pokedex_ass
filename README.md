@@ -1,1 +1,1 @@
-https://bit.ly/3EOP4yb
+https://manishkuyadav.github.io/pokedex_ass/
